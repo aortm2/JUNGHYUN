@@ -1,2 +1,2 @@
-# jung-hyun-portfolio
+# JUNGHYUN
 JUNG HYUN PORTFOLIO
